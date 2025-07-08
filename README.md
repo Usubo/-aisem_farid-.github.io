@@ -1,1 +1,0 @@
-# -aisem_farid-.github.io
